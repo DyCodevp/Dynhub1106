@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Dynhub1106
-- 👀 I’m interested in desarrollo de sofware
+- 👀 I’m interested in sofware developer
 - 🌱 I’m currently learning  info en redes
 - 💞️ I’m looking to collaborate on ..hola mundo
 - 📫 How to reach me dylanchaves520@gmail.com
